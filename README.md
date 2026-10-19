@@ -1,5 +1,5 @@
 
-![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗛𝗮𝗶+𝗜+𝗮𝗺+Vinee;𝗜+𝗮𝗺+𝗔+𝗖𝘆𝗯𝗲𝗿+𝗦𝗲𝗰𝘂𝗿𝗶𝘁𝘆+𝗔𝗻𝗮𝗹𝘆𝘀𝘁++𝗔𝗻𝗱+𝗘𝘁𝗵𝗶𝗰𝗮𝗹+𝗛𝗮𝗰𝗸𝗶𝗻𝗴)
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗛𝗮𝗶+𝗜+𝗮𝗺+𝗩𝗶𝗻𝗲𝗲;𝗔+𝗖𝘆𝗯𝗲𝗿+𝗦𝗲𝗰𝘂𝗿𝗶𝘁𝘆+𝗔𝗻𝗮𝗹𝘆𝘀𝘁+𝗔𝗻𝗱+𝗘𝘁𝗵𝗶𝗰𝗮𝗹+𝗛𝗮𝗰𝗸𝗶𝗻𝗴)
 
 <p align="left">
 𝗠𝗬 𝗣𝗥𝗢𝗙𝗜𝗟𝗘
