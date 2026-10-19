@@ -1,5 +1,4 @@
 ![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗛𝗶𝗶+𝗜'𝗺+𝗩𝗜𝗡𝗘𝗘)
-
 ## Cybersecurity Analyst | SOC Enthusiast | Ethical Hacking Learner
 
 🎓 BCA Graduate (2022–2025)
